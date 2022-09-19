@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @P1o7r
+                                                         Hi there, I'm Piotr
 - 🎑 I’m interested in new technologies.
 - 🌱 I adapt to new circumstances.
 - 🌌 I am not afraid of challenges.
